@@ -6,6 +6,6 @@
 - 🔍 Exploring embedded systems
 - 🚀 Learning, tinkering, experimenting
 - 🎯 Interests: Hiking, Gym, Robots
-- 😎 Fun facs: 160 bench, drummer
+- 😎 Fun facs: 160kg bench, drummer
 
 Thanks for stopping by!
